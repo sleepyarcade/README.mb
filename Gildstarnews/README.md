@@ -1,4 +1,4 @@
-gildstarnews/README.md
+
 𓏴𓏴　　“coming to you live from the guildstar news station!!”　　𓏼　　໒꒱ིྀ
 ⠀
 ⠀
